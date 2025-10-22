@@ -1,3 +1,1 @@
 # sharon-AWSLearnlyLinux
-
-mnbojkiopklop,
